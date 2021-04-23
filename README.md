@@ -1,3 +1,4 @@
+## DEAD PROJECT lmao i got bored
 # Kidzbopify
 
 Tired of your normal Spotify playlist? So am I!
